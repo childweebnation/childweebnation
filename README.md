@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @childweebnation
+- Hiiiiiiii, I’m @childweebnation 🌈
 - 👀 I’m interested in anime (hence the name)
-- 🌱 I’m currently learning school
+-  I’m currently learning school
 - 💞️ I’m looking to collaborate on life
 - 📫 How to reach me: email???
 
